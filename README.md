@@ -2,6 +2,6 @@
 ---
 **My Favorite Stuff**
 
-*Anime
-Manga
-Games
+-Anime
+-Manga
+-Games
