@@ -3,5 +3,7 @@
 **My Favorite Stuff**
 
 -Anime
+
 -Manga
+
 -Games
