@@ -2,11 +2,12 @@
 ---
 **My Top 3 Favorite to do**
 
-- Watch Animes
+- Watching Animes
 
-![Anime](https://preview.redd.it/5n8hs34ztzk61.png?width=960&crop=smart&auto=webp&s=c59ccf9d080be74e10feeaf61b6f418d7d7397c9)
+[![Watch the video](https://i.ytimg.com/vi/2wNQpTgrmDQ/hqdefault.jpg?sqp=-oaymwEbCKgBEF5IVfKriqkDDggBFQAAiEIYAXABwAEG&rs=AOn4CLBEvmbgbkYmYKQPIn0NYSArdYPjVw)](https://www.youtube.com/watch?v=2wNQpTgrmDQ&t=44s)
 
-- Read Mangas
+- Reading Mangas
+	> https://chapmanganelo.com/manga-dk118178
 
-- Play Games
+- Playing Games
 
