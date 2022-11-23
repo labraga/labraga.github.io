@@ -1,14 +1,16 @@
 ### Welcome to *labraga.github.io*
 ---
-**My Top 3 Favorite to do**
+                                               **My Top 3 Favorite to do when I'm bored**
 
-- Watching Animes
+                                                          - Watching Animes
+							  
+---
 
- <img src="https://play-lh.googleusercontent.com/6BWX6p8oq-Me8jIkNsViT6BYYOcvpzKc9gwcLsJ1PxFpzhwtpHMKId4WzZZ8JMOvNw=h500" width=500>
+ <img src="https://play-lh.googleusercontent.com/6BWX6p8oq-Me8jIkNsViT6BYYOcvpzKc9gwcLsJ1PxFpzhwtpHMKId4WzZZ8JMOvNw=h500" width="1010">
 
-> My top 3 recommended anime
+                                                   My Top 3 favorite animes I warched
 
-1. [Classroom Of The Elite](https://www.youtube.com/watch?v=2wNQpTgrmDQ&list=PLiBxRZmrCaxctnVZlc0NeBAyWsvjGXCRz)
+1. [Classroom of the Elite](https://www.youtube.com/watch?v=2wNQpTgrmDQ&list=PLiBxRZmrCaxctnVZlc0NeBAyWsvjGXCRz)
 ---
                                                          Classroom of the Elite
 						 
