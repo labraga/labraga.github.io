@@ -1,6 +1,6 @@
-### Welcome
+
 ---
-                                                       Top 3 Anime you need to watch
+                                                      Top 3 Anime you need to watch
 
                                                  
 							  
