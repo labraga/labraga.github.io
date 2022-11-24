@@ -24,7 +24,7 @@ The story follows the perspective of Kiyotaka Ayanokōji, a quiet and unassuming
 
 ---	
 
-<img src="https://static.wikia.nocookie.net/spy-x-family9171/images/4/44/SPY_x_FAMILY_Key_Visual_2.png/revision/latest?cb=20211102004033" length="500" width="1010">
+<img src="https://assets-prd.ignimgs.com/2022/06/27/spy-x-family-blogroll-1656350614480.jpg" width="1010">
 
 2 [Spy x Family](https://www.youtube.com/watch?v=-Ivz-tSWRmY&list=PLwLSw1_eDZl1wGMYg5oB3uEns0CZNl6sI)
 
