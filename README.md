@@ -1,14 +1,14 @@
-### Welcome to *labraga.github.io*
+### Welcome
 ---
-                                               **My Top 3 Favorite to do when I'm bored**
+                                                       Top 3 Anime you need to watch
 
-                                                          - Watching Animes
+                                                 
 							  
 ---
 
- <img src="https://play-lh.googleusercontent.com/6BWX6p8oq-Me8jIkNsViT6BYYOcvpzKc9gwcLsJ1PxFpzhwtpHMKId4WzZZ8JMOvNw=h500" width="1010">
+ <img src="https://i0.wp.com/anitrendz.net/news/wp-content/uploads/2022/05/classroomoftheeliteseason2_visualfull-1-e1653904168741.jpg?resize=696%2C390&ssl=1" width="1010">
 
-                                                   My Top 3 favorite animes I warched
+                                                
 
 1. [Classroom of the Elite](https://www.youtube.com/watch?v=2wNQpTgrmDQ&list=PLiBxRZmrCaxctnVZlc0NeBAyWsvjGXCRz)
 ---
@@ -23,7 +23,9 @@ The Japanese government has established the Tokyo Metropolitan Advanced Nurturin
 The story follows the perspective of Kiyotaka Ayanokōji, a quiet and unassuming boy, who is not good at making friends and would rather keep his distance, but possesses unrivaled intelligence. He is a student of Class-D, which is where the school dumps its inferior students. After meeting Suzune Horikita and Kikyō Kushida, two other students in his class, the situation begins to change and he starts to get involved in many affairs, and his thought of an ideal normal high school life begins to get scattered.
 
 ---	
-	
+
+<img src="https://static.wikia.nocookie.net/spy-x-family9171/images/4/44/SPY_x_FAMILY_Key_Visual_2.png/revision/latest?cb=20211102004033" width="1010">
+
 2 [Spy x Family](https://www.youtube.com/watch?v=-Ivz-tSWRmY&list=PLwLSw1_eDZl1wGMYg5oB3uEns0CZNl6sI)
 
 ---
@@ -43,7 +45,9 @@ In order to maintain the state of peace between the rival nations of Westalis an
 To accomplish this and present the image of a happy family, he creates the alias of Loid Forger, adopts a young orphan girl named Anya, and marries a woman named Yor Briar. However, unbeknownst to him Anya can read minds and Yor is in fact a professional assassin. Neither Loid nor Yor are aware of each other's true identities, or that Anya knows their true professions. The family later takes in a dog with precognitive abilities whom they name Bond. Despite these unknown factors and Twilight's occasional lapses of common sense due to years of being a spy, he must learn to play the role of the perfect father and husband in order to carry out his mission.							  
 
 ---								  
-							  								 							  
+	
+<img src="https://c4.wallpaperflare.com/wallpaper/555/335/744/anime-girls-no-game-no-life-shiro-no-game-no-life-sora-no-game-no-life-wallpaper-preview.jpg" width="1010">
+	
 3 [No Game No Life](https://www.youtube.com/watch?v=gqjTKopCisQ&list=PL83zr7qeI3ggwyiKvwHlHYfz-rb0X3qcv)
 
 ---
@@ -60,21 +64,4 @@ The series began receiving recognition in 2014, when it appeared in Kono Light N
 								   
 Sora and Shiro are two hikikomori step-siblings who are known in the online gaming world as Blank, an undefeated group of gamers. One day, they are challenged to a game of chess by Tet, a god from another reality. The two are victorious and are offered to live in a world that centers around games. They accept, believing it to be a joke, and are summoned to a reality known as Disboard.[Jp. 1] There, a spell known as the Ten Pledges prevents the citizens of Disboard from inflicting harm on one another, forcing them to resolve their differences by gambling with games whose rules and rewards are magically enforced. In-game, rule enforcement only occurs when the method of cheating is acknowledged and outed by the opponent, allowing players to cheat through discreet methods. Sora and Shiro traverse to Elkia,[Jp. 2] the nation inhabited by humans, and befriend the duchess Stephanie Dola. Learning about Elkia's decline, the two participate in a tournament to determine the next ruler; after winning the crown, they earn the right to challenge the Disboard's other species as humanity's representative.LN 1.4 Their next goal is to conquer all sixteen species in order to challenge Tet to a game; as of the sixth volume, five of the sixteen are under their control.					   
 								   
----						   
-								   
-- Reading Mangas
-
-	
-	
-	
- <img src="https://www.theanimedaily.com/wp-content/uploads/2022/05/Read-My-Wife-Is-A-Demon-Queen-Chapter-369-1024x669.jpg" width=500>
-
-	
-	
-	
-- Playing Games
-
-	
-	
-	
-<img src="https://i0.wp.com/gamingonphone.com/wp-content/uploads/2021/02/Mobile-Legends-Hero.jpg" width=500>
+---			
